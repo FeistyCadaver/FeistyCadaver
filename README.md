@@ -1,1 +1,1 @@
-<div class="tenor-gif-embed" data-postid="13033990507955628398" data-share-method="host" data-aspect-ratio="0.924855" data-width="100%"><a href="https://tenor.com/view/dumb-stupid-patrick-gif-13033990507955628398">Dumb Stupid Patrick GIF</a>from <a href="https://tenor.com/search/dumb-gifs">Dumb GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+![Uploading giphy.gif…]()
